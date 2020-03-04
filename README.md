@@ -13,8 +13,8 @@ Dr. ZHANG Xinzhi
 
 
 
-Master of Science in AI and Digital Meida
-School of Communication
-Hong Kong Baptist University
+Master of Science in AI and Digital Meida<br/>
+School of Communication<br/>
+Hong Kong Baptist University<br/>
 
 
