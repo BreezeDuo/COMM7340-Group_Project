@@ -10,3 +10,11 @@ HU Zhegang (19450168@life.hkbu.edu.hk)<br/>
 
 ### Instructor：
 Dr. ZHANG Xinzhi
+
+
+
+Master of Science in AI and Digital Meida
+School of Communication
+Hong Kong Baptist University
+
+
